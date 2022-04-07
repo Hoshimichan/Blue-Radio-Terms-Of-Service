@@ -58,3 +58,5 @@ If you are under 18, you represent that you have your parent or guardian’s per
 
 If you are a parent or legal guardian of a user under the age of 18, by allowing your child to use the Service, you are subject to the terms of this Agreement and responsible for your child’s activity on the Service. You can find tools and resources to help you manage your family’s experience on YouTube (including how to enable a child under the age of 13 to use the Service and YouTube Kids) in our Help Center and through Google’s Family Link.
 Blue Music inc.
+
+Made with Love.💙
